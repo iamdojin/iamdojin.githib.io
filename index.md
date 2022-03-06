@@ -1,4 +1,4 @@
-# Welcome to Dojin's Page!
+# Welcome to iamDojin's Page!
 
 ### PERSONAL DETAILS
 + **Name**: Dojin Kim
